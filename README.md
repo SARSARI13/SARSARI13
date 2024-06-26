@@ -7,7 +7,7 @@
 💞️ I’m looking to collaborate on projects related to computer vision and machine learning.
 
 📫 How to reach me: Feel free to message me here on this platform!
-
+ 
 😄 Pronouns: He/him.
 
 ⚡ Fun fact: I enjoy experimenting with different cuisines and trying out new recipes in my spare time! I also love surfing and gaming.
